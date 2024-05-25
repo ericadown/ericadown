@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ericadown
+- 👀 I’m interested in moon and stars
+- 📫 How to reach me ericabujs@gmail.com
+- 😄 Pronouns: she
+- ⚡ Fun fact: cold
